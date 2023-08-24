@@ -1,5 +1,3 @@
-Creating a Positive Organizational Culture
-===========================================================================================
 
 In this chapter, we will discuss the importance of understanding organizational culture and creating a positive work environment as a first-time manager. A positive organizational culture can improve employee morale, productivity, and retention.
 

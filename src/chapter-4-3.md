@@ -1,5 +1,3 @@
-Effective Decision Making
-========================================================================
 
 In this chapter, we will discuss the essential skills and strategies for effective decision making as a first-time manager. Effective decision making is crucial for achieving success in your role, maintaining team productivity, and ensuring long-term growth and development.
 

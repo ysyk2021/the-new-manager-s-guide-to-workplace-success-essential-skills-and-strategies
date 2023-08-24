@@ -1,5 +1,3 @@
-Defining Leadership
-=================================================
 
 In this chapter, we will discuss the concept of leadership and what it means to be a leader as a first-time manager. Leadership is a critical skill for managers to develop as it involves inspiring and guiding team members towards achieving organizational goals.
 

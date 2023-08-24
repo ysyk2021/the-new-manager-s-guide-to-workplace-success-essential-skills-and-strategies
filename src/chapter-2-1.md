@@ -1,5 +1,3 @@
-Communication Skills
-==============================================================
 
 In this chapter, we will discuss the importance of communication skills in building strong relationships as a manager. We will explore different types of communication, techniques for effective communication, and strategies for improving communication skills.
 

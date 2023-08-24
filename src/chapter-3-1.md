@@ -1,5 +1,3 @@
-Team Building and Management
-===================================================================
 
 In this chapter, we will discuss the importance of effective team building and management for managers. We will explore techniques for building strong teams, managing team dynamics, and fostering a positive work environment.
 

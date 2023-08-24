@@ -1,5 +1,3 @@
-Chapter 4: Time Management and Prioritization
-=============================================
 
 In this chapter, we will discuss the essential skills of time management and prioritization for first-time managers. We will explore managing your time effectively, setting priorities, effective decision making, and handling multiple projects.
 

@@ -1,5 +1,3 @@
-Delegating Tasks
-=======================================================
 
 In this chapter, we will discuss the importance of delegating tasks as a first-time manager. Delegating tasks effectively can help improve team productivity, free up time for more important tasks, and empower team members to take ownership of their work.
 

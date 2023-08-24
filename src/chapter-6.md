@@ -1,5 +1,3 @@
-Chapter 6: Understanding Organizational Culture
-===============================================
 
 In this chapter, we will discuss the importance of understanding organizational culture for first-time managers. We will explore what organizational culture is, why it's important to understand your company's culture, how to adapt to company culture, and strategies for creating a positive organizational culture.
 

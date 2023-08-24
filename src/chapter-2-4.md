@@ -1,5 +1,3 @@
-Conflict Resolution
-=============================================================
 
 In this chapter, we will discuss the importance of conflict resolution in building strong relationships as a manager. We will explore different sources of conflict, techniques for managing conflict, and strategies for preventing conflict from arising.
 

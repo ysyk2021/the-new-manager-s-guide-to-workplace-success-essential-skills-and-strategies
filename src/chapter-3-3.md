@@ -1,5 +1,3 @@
-Motivating Employees
-===========================================================
 
 In this chapter, we will discuss the importance of motivating employees as a first-time manager. Motivation is critical for improving employee engagement, productivity, and retention.
 

@@ -1,5 +1,3 @@
-Different Styles of Leadership
-============================================================
 
 In this chapter, we will discuss the different styles of leadership as a first-time manager. Understanding different leadership styles can help you identify your own style and adapt to different situations and team dynamics.
 

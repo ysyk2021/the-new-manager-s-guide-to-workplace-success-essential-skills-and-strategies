@@ -1,5 +1,3 @@
-Understanding Your Role as a Manager
-=============================================================
 
 In this chapter, we will discuss the importance of understanding your role as a manager. We will explore the responsibilities and expectations of a manager, the challenges they may face, and the key skills needed to be successful in this role.
 

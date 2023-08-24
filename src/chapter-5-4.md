@@ -1,5 +1,3 @@
-Developing Your Leadership Style
-==============================================================
 
 In this chapter, we will discuss the importance of leadership skills for managers and how to effectively develop a leadership style. We will explore different leadership styles and techniques for identifying and developing your own leadership style.
 

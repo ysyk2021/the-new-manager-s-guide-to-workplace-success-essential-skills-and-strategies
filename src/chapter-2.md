@@ -1,5 +1,3 @@
-Chapter 2: Building Strong Relationships
-========================================
 
 In this chapter, we will discuss the essential skills and strategies for building strong relationships as a first-time manager. We will explore communication skills, active listening, giving and receiving feedback, and conflict resolution.
 

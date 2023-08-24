@@ -1,5 +1,3 @@
-What is Organizational Culture?
-================================================================================
 
 In this chapter, we will discuss the importance of understanding organizational culture and what it means. We will explore how culture influences workplace behavior and how managers can effectively navigate and shape their organization's culture.
 

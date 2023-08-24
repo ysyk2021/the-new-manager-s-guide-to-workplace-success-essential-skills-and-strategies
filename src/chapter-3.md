@@ -1,5 +1,3 @@
-Chapter 3: Managing Teams Effectively
-=====================================
 
 In this chapter, we will discuss the essential skills and strategies for managing teams effectively as a first-time manager. We will explore team building and management, delegating tasks, motivating employees, and handling performance issues.
 

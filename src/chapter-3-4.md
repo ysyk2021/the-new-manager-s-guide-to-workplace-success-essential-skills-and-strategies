@@ -1,5 +1,3 @@
-Handling Performance Issues
-==================================================================
 
 In this chapter, we will focus on handling performance issues as a first-time manager. Performance issues can arise for various reasons, such as poor job fit, lack of training or support, personal problems, or simply not meeting expectations. As a manager, it is your responsibility to address these issues effectively to ensure the individual's growth and development and maintain team productivity.
 

@@ -1,5 +1,3 @@
-Managing Subordinates
-====================================================================
 
 In this chapter, we will focus on managing subordinates as a first-time manager. Managing subordinates effectively is essential for achieving team goals, maintaining morale and productivity, and fostering long-term growth and development.
 

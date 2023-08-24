@@ -1,5 +1,3 @@
-Building Relationships with Superiors
-====================================================================================
 
 In this chapter, we will discuss the essential skills and strategies for building relationships with superiors as a first-time manager. Effective communication and relationship-building can help establish trust, improve collaboration, and advance your career.
 

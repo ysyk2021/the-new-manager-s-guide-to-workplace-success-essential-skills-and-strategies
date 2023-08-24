@@ -1,5 +1,3 @@
-Active Listening
-==========================================================
 
 In this chapter, we will discuss the importance of active listening in building strong relationships as a manager. We will explore what active listening is, why it is important, and how to effectively practice active listening.
 

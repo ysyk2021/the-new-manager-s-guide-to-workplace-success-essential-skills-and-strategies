@@ -1,5 +1,3 @@
-Chapter 5: Leadership Skills
-============================
 
 In this chapter, we will discuss the essential leadership skills for first-time managers. We will explore the definition of leadership, different styles of leadership, leading by example, and developing your leadership style.
 

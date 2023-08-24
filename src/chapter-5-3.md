@@ -1,5 +1,3 @@
-Leading by Example
-================================================
 
 In this chapter, we will discuss the importance of leading by example as a first-time manager. Leading by example involves modeling the behavior and attitudes you want to see in your team members and upholding your organization's values and mission.
 

@@ -1,5 +1,3 @@
-Communicating with Upper Management
-==================================================================================
 
 In this chapter, we will discuss the essential skills and strategies for managing up and down the hierarchy as a first-time manager. Specifically, we will focus on communicating effectively with upper management.
 

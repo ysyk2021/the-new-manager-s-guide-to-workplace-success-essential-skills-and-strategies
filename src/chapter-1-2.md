@@ -1,5 +1,3 @@
-Challenges Faced by First-Time Managers
-================================================================
 
 In this chapter, we will discuss the challenges faced by first-time managers. We will explore the common difficulties new managers encounter when transitioning into their role and provide strategies for overcoming these challenges.
 

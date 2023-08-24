@@ -1,5 +1,3 @@
-Chapter 8: Growing Your Career as a Manager
-===========================================
 
 In this chapter, we will discuss strategies for growing your career as a manager. We will explore professional development opportunities, networking and mentoring, continuously learning and improving, and moving up the ladder.
 

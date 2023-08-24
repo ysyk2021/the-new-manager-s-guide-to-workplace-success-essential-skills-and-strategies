@@ -1,5 +1,3 @@
-Setting Priorities
-=================================================================
 
 In this chapter, we will discuss the essential skills and strategies for setting priorities as a first-time manager. Effective prioritization is crucial for achieving success in your role, maintaining productivity, and ensuring work-life balance.
 

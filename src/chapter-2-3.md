@@ -1,5 +1,3 @@
-Giving and Receiving Feedback
-=======================================================================
 
 In this chapter, we will discuss the importance of giving and receiving feedback in building strong relationships as a manager. We will explore how to effectively provide feedback to employees, receive feedback from others, and use feedback to improve performance.
 

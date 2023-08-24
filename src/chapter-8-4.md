@@ -1,5 +1,3 @@
-Moving up the Ladder
-=================================================================
 
 In this chapter, we will discuss strategies for growing your career as a manager and moving up the ladder within your organization. We will explore seeking out leadership opportunities, building a strong track record of success, communicating your goals and aspirations, and developing a strong professional reputation.
 

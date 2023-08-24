@@ -1,5 +1,3 @@
-Networking and Mentoring
-=====================================================================
 
 In this chapter, we will discuss the importance of networking and mentoring for growing your career as a manager. We will explore techniques for building professional relationships, finding mentors, and seeking opportunities to advance your career.
 

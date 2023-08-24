@@ -1,5 +1,3 @@
-Providing Constructive Feedback
-==============================================================================
 
 In this chapter, we will focus on providing constructive feedback as a first-time manager. Providing constructive feedback is an essential aspect of managing up and down the hierarchy, and it can help individuals grow and develop professionally while maintaining team productivity.
 

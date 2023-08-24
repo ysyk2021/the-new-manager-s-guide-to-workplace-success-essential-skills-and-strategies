@@ -1,5 +1,3 @@
-Handling Multiple Projects
-=========================================================================
 
 In this chapter, we will discuss the importance of time management and prioritization for handling multiple projects as a first-time manager. Effective time management and prioritization can help you stay organized, meet deadlines, and achieve success in your role.
 

@@ -1,5 +1,3 @@
-Importance of Understanding Your Company's Culture
-===================================================================================================
 
 In this chapter, we will discuss the importance of understanding your company's culture as a first-time manager. Understanding organizational culture can help you build effective relationships with team members and superiors, promote collaboration and teamwork, and achieve success in your role.
 

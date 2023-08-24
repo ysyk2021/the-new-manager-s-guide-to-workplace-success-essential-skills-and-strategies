@@ -1,5 +1,3 @@
-Chapter 7: Managing Up and Down the Hierarchy
-=============================================
 
 In this chapter, we will discuss the essential skills for managing up and down the hierarchy as a first-time manager. We will explore building relationships with superiors, communicating with upper management, managing subordinates, and providing constructive feedback.
 

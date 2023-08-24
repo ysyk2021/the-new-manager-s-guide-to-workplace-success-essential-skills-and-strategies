@@ -1,5 +1,3 @@
-Adapting to Company Culture
-============================================================================
 
 In this chapter, we will discuss the importance of understanding and adapting to company culture as a first-time manager. Adapting to company culture can help you build effective relationships with team members and superiors, promote collaboration and teamwork, and achieve success in your role.
 

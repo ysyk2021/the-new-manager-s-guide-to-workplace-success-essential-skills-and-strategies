@@ -1,5 +1,3 @@
-Managing Your Time Effectively
-=============================================================================
 
 In this chapter, we will discuss the essential skills and strategies for managing your time effectively as a first-time manager. Effective time management and prioritization are crucial for achieving success in your role, maintaining work-life balance, and avoiding burnout.
 
