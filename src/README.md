@@ -6,3 +6,7 @@ In this book, we'll explore the essential skills and strategies that new manager
 Whether you're a newly promoted manager or seeking to develop your managerial skills, this book will provide you with the knowledge and tools needed to succeed as a first-time manager. By mastering these essential skills and strategies, you can become a confident and effective leader who can inspire and motivate your team to achieve success. With the right strategies in place, you can navigate the challenges of being a new manager and build a successful career as a leader in your organization.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
