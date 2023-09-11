@@ -1,5 +1,4 @@
-Chapter 9: Communicating with Upper Management
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication with upper management is vital for the success of a first-time manager. In this chapter, we will explore strategies and techniques to enhance communication and build strong relationships with upper management.
 

@@ -1,5 +1,4 @@
-Chapter 4: Importance of Understanding Your Company's Culture
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding your company's culture is crucial for success as a first-time manager. In this chapter, we will explore the significance of comprehending and navigating the culture of your organization.
 

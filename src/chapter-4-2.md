@@ -1,5 +1,4 @@
-Chapter 3: Setting Priorities
-=============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting priorities is a key skill for first-time managers to effectively manage their workload and achieve desired outcomes. In this chapter, we will explore strategies and techniques for setting priorities that align with organizational goals and maximize productivity.
 

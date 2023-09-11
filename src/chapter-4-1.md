@@ -1,5 +1,4 @@
-Chapter 6: Managing Your Time Effectively
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Managing your time effectively is a critical skill for first-time managers. In this chapter, we will explore strategies and techniques to help you optimize your time management and increase productivity.
 

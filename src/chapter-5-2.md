@@ -1,5 +1,4 @@
-Chapter 4: Different Styles of Leadership
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding and adapting to different styles of leadership is crucial for first-time managers. In this chapter, we will explore various leadership styles, their characteristics, and how they can impact your effectiveness as a manager.
 

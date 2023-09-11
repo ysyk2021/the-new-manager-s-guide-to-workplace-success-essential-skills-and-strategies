@@ -1,5 +1,4 @@
-Chapter 8: Building Relationships with Superiors
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building strong relationships with your superiors is essential for success as a first-time manager. In this chapter, we will explore strategies to foster positive and productive relationships with your superiors, which can lead to better communication, support, and advancement opportunities.
 

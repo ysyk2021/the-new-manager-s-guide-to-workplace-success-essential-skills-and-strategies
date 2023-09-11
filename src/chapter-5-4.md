@@ -1,5 +1,4 @@
-Chapter 7: Developing Your Leadership Style
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing your leadership style is a crucial aspect of becoming an effective manager. In this chapter, we will explore the importance of leadership style, discuss various leadership styles, and provide guidance on developing your unique approach to leadership.
 

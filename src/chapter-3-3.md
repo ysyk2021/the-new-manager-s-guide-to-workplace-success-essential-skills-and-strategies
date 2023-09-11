@@ -1,5 +1,4 @@
-Chapter 6: Motivating Employees
-===============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Motivating employees is a crucial aspect of being a successful manager. In this chapter, we will explore various strategies and techniques to inspire and motivate your team members for enhanced productivity and job satisfaction.
 

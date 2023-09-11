@@ -1,5 +1,4 @@
-Chapter 10: Professional Development Opportunities
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Professional development is a vital aspect of career growth and success as a manager. In this chapter, we will explore the importance of professional development, discuss various opportunities available, and provide guidance on how to make the most of these opportunities.
 

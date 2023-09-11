@@ -1,5 +1,4 @@
-Chapter 6: Handling Performance Issues
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Handling performance issues is a crucial responsibility for first-time managers. In this chapter, we will explore strategies and best practices for effectively addressing and resolving performance issues within your team.
 

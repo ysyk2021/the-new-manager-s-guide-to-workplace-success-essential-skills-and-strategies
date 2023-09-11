@@ -1,5 +1,4 @@
-Chapter 5: Managing Subordinates
-================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Managing subordinates is a critical aspect of being a first-time manager. In this chapter, we will explore key strategies and skills to effectively manage and lead your team towards success.
 

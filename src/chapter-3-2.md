@@ -1,5 +1,4 @@
-Chapter 8: Delegating Tasks
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Delegating tasks is a critical skill for managers to master. In this chapter, we will explore the importance of delegation, discuss the benefits, and provide practical strategies and tips for effective task delegation.
 

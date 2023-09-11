@@ -1,5 +1,4 @@
-Chapter 5: Adapting to Company Culture
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Adapting to the company culture is a crucial aspect of success for first-time managers. In this chapter, we will explore strategies and approaches to help you navigate and adapt to the culture of your organization.
 

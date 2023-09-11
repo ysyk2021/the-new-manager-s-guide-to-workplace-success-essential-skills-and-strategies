@@ -1,5 +1,4 @@
-Chapter 2: Defining Leadership
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership is a fundamental aspect of being an effective manager. In this chapter, we will explore the concept of leadership and discuss key attributes, styles, and responsibilities that contribute to successful leadership.
 

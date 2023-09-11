@@ -1,5 +1,4 @@
-Chapter 6: Handling Multiple Projects
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Handling multiple projects is a common challenge for first-time managers. In this chapter, we will explore strategies and techniques to effectively manage and prioritize multiple projects, ensuring successful outcomes and minimizing overwhelm.
 

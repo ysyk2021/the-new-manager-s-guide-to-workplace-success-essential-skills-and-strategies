@@ -1,5 +1,4 @@
-Chapter 2: Leading by Example
-=============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leading by example is a fundamental skill for first-time managers to inspire and motivate their team towards success. In this chapter, we will explore the importance of leading by example and provide strategies for effectively demonstrating desired behaviors and qualities as a leader.
 

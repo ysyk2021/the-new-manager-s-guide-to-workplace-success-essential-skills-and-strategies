@@ -1,5 +1,4 @@
-Chapter 4: Creating a Positive Organizational Culture
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a positive organizational culture is a crucial responsibility for first-time managers. In this chapter, we will explore strategies and practices to foster a supportive and inclusive work environment that promotes employee engagement, collaboration, and overall success.
 
